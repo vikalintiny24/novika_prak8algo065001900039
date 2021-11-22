@@ -1,0 +1,2 @@
+# novika_prak8algo065001900039
+prakalgo
